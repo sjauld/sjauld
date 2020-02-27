@@ -84,3 +84,27 @@ Park Hyatt - go before 7 or they charge you a massive cover charge.
 
 We weren't super impressed with Ueno - had a wander around the park which was
 nice, and went for a paddle on the swan boats in the lake. Not a must-see.
+
+## Nightlife
+
+### Sangenjaya
+
+This is a really cool little area with squillions of random bars, including
+
+* [Queensland Bar](https://goo.gl/maps/YEgcwfcr8thNGyMY9) - good for karaoke
+* [Yakusyu] - crazy jars full of all kinds of things infused in shochu. Very
+  hard to find but it's just around the corner from Queensland Bar
+
+### Roppongi
+
+This is a pretty terrible expat / red light district full of Nigerians trying to
+sell you drugs, women or both.
+
+* [Geronimos](https://goo.gl/maps/kRpd8qYhyibrsgSD7) - small shot bar with a
+  drum. When you hit the drum, you have to buy everyone in the bar a shot. Rich
+  bankers go there around midnight and hit the drum to prove how rich they are.
+  Free shots!
+* [Motown](https://goo.gl/maps/9BRdMchXVQGP5Piy8) - transvestite bar. Pretty
+  good atmosphere, much nicer than anywhere else in Roppongi.
+
+_to be continued..._
